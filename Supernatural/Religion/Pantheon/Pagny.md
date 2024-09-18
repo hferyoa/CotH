@@ -1,0 +1,6 @@
+- Goddess of peace and prosperity
+	- As such, seen as a fickle God
+	- People are grateful when she deigns to influence the world, but don't rely on her grace
+- Name comes from PIE root \*pag- (_to fasten_)
+	- \*pag- is where we get words like "peace" and "pact" from
+	- \*pag- is the hypothetical source of the Greek "pegnynai" (_to fix, make firm, fast, or solid_) - used in "bibliopegy" (_bookbinding_)

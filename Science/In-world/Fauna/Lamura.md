@@ -1,0 +1,7 @@
+- From the Greek "Lamia" (_large throat/gullet_, possibly also something related to \*lem- meaning _nocturnal spirit_)
+- Can never sleep, some carve out their own eyes due to the pain
+	- Can normally tell roughly how old a Lamura is by whether she has eyes or not
+		- Older Lamura carve out their eyes as the pain only continues to grow until they do, and the only respite a Lamura can receive for this is to cur out their eyes
+- Lamura grow stronger the older they are
+- Her mouth is uncharacteristically wide (stretching almost to her ears), and permanently entirely dislocated and dangling freely
+- Her skin gradually grows more tough and scaly over a year, at which point she will shed it, revealing her human skin below

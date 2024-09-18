@@ -1,0 +1,29 @@
+- Named after Heracles' [birth name](https://en.wikipedia.org/wiki/Heracles), Alcaeus
+- Tarot of Strength
+	- Power
+	- Energy
+	- Action
+	- Courage
+	- Magnanimity
+	- Complete success and honours
+	- Reversed:
+		- Despotism
+		- Abuse of power
+		- Weakness
+		- Discord
+		- Disgrace
+	- Strength, in one of its most exalted aspects
+	- Connected with the Divine Mystey of Union
+	- The virtue operates in all planes
+	- The sweet yoke and the light burden of Divine Law, when it has been taken into the heart of hearts
+	- Nothing to do with self-confidence in the ordinary sense
+	- Concerns the confidence of those whose strength is God, who have found their refuge in Him
+	- One aspect in which the lion signifies the passions, and she who is called Strength is the higher nature in its liberation
+	- Walked upon the asp and the basilisk and has trodden down the lion and the dragon
+- Description:
+	- Blonde, shoulder length dreadlocks
+	- Shaved sides of the head
+	- Small amount of stubble on his chin
+	- A nose that had clearly been broken many times over
+	- Tiny irises that are reminiscent of a cat that's found its prey
+	- Fights with a long handed peasant flail

@@ -1,0 +1,2 @@
+- The continent on the northern border of the Agnost, and where the majority of the story is set
+- "Europe"

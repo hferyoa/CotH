@@ -1,0 +1,2 @@
+- Name comes from the "Marabbecca", a creature that dwells in wells and reservoirs
+- Takes the appearance of a woman or amphibian

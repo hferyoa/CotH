@@ -1,0 +1,5 @@
+- Mushroom of which the effects were first harnessed by Chimeios, and was thusly named after him
+- In truth, this is a Fly Agaric
+	- As such, can only grow in Pine (maybe Birch?) forests
+- When parboiled twice into a mushroom broth, it has properties that counteract the negative effects of Lavðan
+- Secondary effects that Chymec is sometimes consumed for [[Chymec|recreational or religious use]]

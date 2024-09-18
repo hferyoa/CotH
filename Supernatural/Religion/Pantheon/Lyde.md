@@ -1,0 +1,2 @@
+- Named after [Leto](https://en.wikipedia.org/wiki/Leto)
+- Goddess of childbirth and motherhood

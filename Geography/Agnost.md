@@ -1,0 +1,2 @@
+- The ocean that borders the southern coastlines of Alinath, the western coasts of Zephros, and the northern coasts of Agoniki
+- "The Mediterranean Sea"

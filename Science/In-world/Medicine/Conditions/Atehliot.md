@@ -1,0 +1,4 @@
+- Name comes from the Greek (_endless/unending_)
+- It's a name for [congenital insensitivity to pain](https://en.wikipedia.org/wiki/Congenital_insensitivity_to_pain)
+- Common in people from Hyperevras (itself named after Eurus (_Anemoi of the southeast wind_))
+	- CIP with anhydrosis is common among the Negev Bedouins from Israel

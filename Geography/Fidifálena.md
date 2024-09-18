@@ -1,0 +1,4 @@
+- Named "Serpent-Whale"
+- In CotH, Láthn will be an "island serpent" that prevents sailors from venturing out across the ocean connected to the western border of the Agnost
+- An [Aspidochelone](https://en.wikipedia.org/wiki/Aspidochelone)
+- Uses its massive whale tail to create large waves

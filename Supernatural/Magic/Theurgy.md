@@ -1,0 +1,6 @@
+- "High Magic"
+- Spells are done via prayer and petitions to God(s)
+- Solely Aethic magic
+	- Healing
+	- Future Sight
+	- etc

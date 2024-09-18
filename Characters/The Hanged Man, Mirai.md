@@ -1,0 +1,22 @@
+- Named after the [Moirai](https://en.wikipedia.org/wiki/Moirai)
+- Tarot of the Hanged Man
+	- Wisdom
+	- Circumspection
+	- Discernment
+	- Trials
+	- Sacrifice
+	- Intuition
+	- Divination
+	- Prophecy
+	- Reversed:
+		- Selfishness
+		- The crowd
+		- Body politic
+	- A card of profound significance, but all the significance is veiled
+	- Expresses the relation, in one of its aspects, between the Divine and the Universe
+	- He who can understand that the story of his higher nature is imbedded in this symbolism will receive intimations concerning a great awakening that is possible
+		- Will know that after the sacred Mystery of Death, there is a glorious Mystery of Resurrection
+- Description:
+	- Will be an older lady
+	- Thinning, unkempt hair covering her face
+	- Walks with a knobbly wooden stick, that bows under her weight

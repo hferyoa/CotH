@@ -1,0 +1,21 @@
+- Tarot of the World
+	- Assured success
+	- Recompense
+	- Voyage
+	- Route
+	- Emigration
+	- Flight
+	- Change of place
+	- Reversed:
+		- Inertia
+		- Fixity
+		- Stagnation
+		- Permanence
+	- Represents the perfection and end of the Cosmos; the secret which is within it
+	- The rapture of the universe when it understands itself in God
+	- It is further the state of the soul in the consciousness of the Divine Vision, reflected from self-knowing spirit
+	- It has more than one message on the macrocosmic side
+	- Is the state of the restored world when the law of manifestation shall have been carried to the highest degree of natural perfection
+	- Perhaps more especially a story of the past, referring to the day when all was declared to be good
+	- When the morning stars sang together and all the Sons of God shouted for joy
+	- The Crown of the Magi

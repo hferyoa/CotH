@@ -1,0 +1,34 @@
+- Named after [Metis](https://en.wikipedia.org/wiki/Metis_(mythology)), wife of Zeus
+- The word metis means a combination of wisdom, or magical cunning
+- Tarot of the Moon
+	- Hidden enemies
+	- Danger
+	- Calumny
+	- Darkness
+	- Terror
+	- Deception
+	- Occult forces
+	- Error
+	- Reversed:
+		- Instability
+		- Inconstancy
+		- Silence
+		- Lesser degrees of deception and error
+	- The imagination apart from life of the spirit
+	- The path between towers is the issue into the unknown
+	- Intellectual light is a reflection
+		- Beyond it is the unknown mystery which it cannot shew forth
+	- Illuminates our animal nature, types of which are represented below:
+		- Dog
+		- Wolf
+		- That which comes up out of the deeps
+		- The nameless and hideous tendency which is lower than the savage beast
+	- It strives to attain manifestation, symbolised by crawling from the abyss of water to the land
+		- But as a rule it sinks back whence it came
+	- The face of the mind directs a calm gaze upon the unrest below
+	- The dew of thought falls
+	- The message is: Peace, be still
+		- It may be that there shall come a calm upon the animal nature
+	- While the abyss beneath shall cease from giving up a form
+- Description:
+	- Siren, wife of [[The Tower, Theothyma]]

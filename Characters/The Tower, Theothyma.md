@@ -1,0 +1,37 @@
+- Name means "[God (who is a) victim](https://translate.google.com/?sl=el&tl=en&text=%CE%B8%CE%B5%CF%8C%CF%82%20%CE%B8%CF%8D%CE%BC%CE%B1%0A&op=translate)"
+- Known as Thyma
+	- This name would typically be shortened to Theo
+	- Shortening to Thyma shows how integral being a victim is to his identity
+- Under the effects of a Katathesmos, a Goteic type of magic
+	- Unaware that it was his wife, [[The Moon, Mytis]] who cast the Goteia upon him
+- Tarot of the Tower
+	- Misery
+	- Distress
+	- Indifference
+	- Adversity
+	- Calamity
+	- Disgrace
+	- Deception
+	- Ruin
+	- Unforeseen catastrophe
+	- Reversed:
+		- Negligence
+		- Absence
+		- Distribution
+		- Carelessness
+		- Apathy
+		- Nullity
+		- Vanity
+	- Signifies the materialisation of the spiritual word
+	- Ruin of the House of We, when evil has prevailed therein
+	- It is the rending of the House of Doctrine
+	- The reference is, however, to a House of Falsehood
+	- Comprehensively illustrates the old truth that "except the Lord build the house, they labour in vain that build it"
+	- More commonly a question of analogy
+		- One is concerned with the fall into the material and animal state
+		- The other signifies destruction on the intellectual side
+	- Has been spoken of as the chastisement of pride
+	- Intellect overwhelmed in the attempt to penetrate the Mystery of God
+	- Also the end of a dispensation
+- Description:
+	- -missing-

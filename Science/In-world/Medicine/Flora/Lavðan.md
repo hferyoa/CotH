@@ -1,0 +1,8 @@
+- Named after Laudanum
+- Comes from 
+- Used for treating:
+	- Aches and pains
+	- Insomnia
+	- Asthma
+	- Stomach illnesses
+	- Bad eyesight

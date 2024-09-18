@@ -1,0 +1,10 @@
+- Name comes from the Greek for "cut off"
+- Also known as "Kovehs" (_cut)
+- Essentially outlaws, or [Homo Sacer](https://en.wikipedia.org/wiki/Homo_sacer)
+- They are branded remotely via magic ==to be confirmed how==
+	- The markings are called "Enmoles", named after the PIE root words of [immolate](https://www.etymonline.com/word/immolate#etymonline_v_1539): "to sacrifice, kill as a victim"
+	- The Enmoles consist of a "tattoo fingerprint" unique to the spell cast on their left ear and dependent on their bounty
+	- Naturally, some bounty hunters would find it easier to crop an ear of an Abokove and bring the ear in whilst the Abokove yet lives. This is massively frowned upon, and if the bounty hunter is caught deliberately doing this (i.e. the Abokove didn't manage to survive through some great feat of constitution or luck), the bounty hunter themselves is branded an Abokove
+		- Anyone who comes across one is free to kill them, cut their left ear off, and claim their bounty (after the Enmole is validated). Doing so if the Abokove is dead is said to also grant favour with the God(s)
+		- [Cropped](https://en.wikipedia.org/wiki/Cropping_(punishment)) people (whether previously Abokove or not) are called [Soma](https://en.wikipedia.org/wiki/Slavery_in_ancient_Greece#Terminology), and have their freedom, albeit in a limited way - see [[Soma]]
+	- Since it takes high level magic to mark someone, this is rarely done - often countries will instead deport their criminals in the dead of night to rival nations

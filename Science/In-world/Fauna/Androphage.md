@@ -1,0 +1,4 @@
+- Name comes from the Greek "Androphagos" (_man-eater_)
+- The Greek equivalent of a Manticore
+- Head of a human, body of a lion, tail of a scorpion
+	- Rumoured to have wings

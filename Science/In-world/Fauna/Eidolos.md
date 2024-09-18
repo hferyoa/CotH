@@ -1,0 +1,2 @@
+- Comes from the ancient Greek "Eidolon" (_double/apparition/ghost_)
+- Will essentially be changelings

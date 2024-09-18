@@ -1,0 +1,15 @@
+- Alex meaning "Defender of man"
+- Arctou meaning "Son of Arctos"
+- Tarot of Judgement
+	- Rebirth
+	- Inner-calling
+	- Absolution
+	- Karma
+	- Causality
+	- Second chance
+	- It is the card which registers the accomplishment of the great work of transformation in answer to the summons of the heavenly
+		- The summons is heard and answered from within
+	- Herein is the intimation of a significance which cannot well be carried further in the present place
+	- What is that within us which does sound a trumpet and all that is lower in our nature rises in response?
+	- The card depicts for those who can see no further, the last judgement and the resurrection in the natural body
+	- They will understand that it has been called truly in the past eternal life

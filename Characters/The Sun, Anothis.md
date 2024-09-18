@@ -1,0 +1,22 @@
+- Name means "blossom"
+- Misspelling of Anthony
+- Tarot of the Sun
+	- Happiness
+	- Contentment
+	- Vitality
+	- Self-Confidence
+	- Success
+	- Sometimes referred to as the best card in Tarot
+	- Good things
+	- Positive outcomes to current struggles
+	- The destiny of the Supernatural East
+	- Great and holy light which goes before the endless procession of humanity
+	- Coming out from the walled garden of the sensitive life
+	- Passing on the journey home
+	- The transit from the manifest light of this world, represented by the glorious sun of earth
+		- To the light of the world to come, which goes before aspiration and is typified by the heart of a child
+	- The last allusion is again the key to a different form or aspect of the symbolism
+	- The sun is that of consciousness in the spirit, the direct as the antithesis of the reflected light
+	- The characteristic type of humanity has become a little child therein - a child in the sense of simplicity and innocence in the sense of wisdom
+	- In that simplicity, he bears the seal of Nature and Art, in that innocence, he signifies the restored world
+	- When the self-knowing spirit has dawned in the consciousness above the natural mind, that mind in its renewal leads forth the animal nature in a state of perfect conformity

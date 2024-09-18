@@ -1,0 +1,2 @@
+- The empire spanning a majority of Alnath, as well as some of the western border of Zephros
+- Named after the "Glory of Thales" (_Thales Doxa_)

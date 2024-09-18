@@ -1,0 +1,3 @@
+- Named after "Seírios" (_glowing/scorching_), the brightest star in the night sky
+- Only the males are known as Seirrho, females are known as Alnair (Arabic: _the bright one_)
+	- However, females are far rarer and so most use Seirrho to refer to either gender

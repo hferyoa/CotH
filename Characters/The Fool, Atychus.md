@@ -1,0 +1,13 @@
+- Name means "unlucky"
+- Protagonist
+- Tarot of the Fool
+	- Usually interpreted as the protagonist of the story
+	- The Major Arcana is the path the Fool takes through the mysteries of life and the main human archetypes
+	- The Path is known traditionally in cartomancy as the "Fool's Journey"
+	- Frequently used to introduce the meaning of the Major Arcana cards to beginners
+	- He is a prince of the other world on his travels through this one
+	- He is the spirit in search of experience
+	- We shall see how the card fares according to the common arts of fortune-telling
+	- It will be an example, to those who can discern, of the fact, otherwise so evident, that the Trumps Major had no place originally in the arts of psychic gambling, when cards are used as the counters and pretexts
+	- Of the circumstances under which this art arose that we know, however, very little
+	- The conventional explanations say that the Fool signifies the flesh, the sensitive life, and by a peculiar satire its subsidiary name was at one time the alchemist, as depicting folly at the most insensate stage

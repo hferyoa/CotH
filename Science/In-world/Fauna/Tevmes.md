@@ -1,0 +1,2 @@
+- Named after the Teumessian Fox
+- Will be a silhouette of a fox

@@ -1,0 +1,32 @@
+- Named after [Mount Othrys](https://en.wikipedia.org/wiki/Othrys)
+	- Base of Kronos and the Titans during the [Titanomachy](https://en.wikipedia.org/wiki/Titanomachy)
+- High priest of Atychus' religion
+- Killed Atychus' ==relatives==
+- Tarot of the Hierophant
+	- Marriage
+	- Alliance
+	- Captivity
+	- Servitude
+	- Mercy
+	- Goodness
+	- Inspiration
+	- The man to whom the Querent (Reader) has recourse
+	- Reversed:
+		- Society
+		- Good understanding
+		- Concord
+		- Over kindness
+		- Weakness
+	- He is the ruling power of external religion
+	- Symbolises all things that are righteous and sacred on the manifest side
+		- As such, he is the channel of grace belonging to the world of institution as distinct from that of Nature
+	- Leader of salvation for the human race at large
+	- He is the order and head of recognised hierarchy
+		- The reflection of another and greater hierarchic order
+	- May so happen that the pontiff forgets the significance of this his symbolic state
+		- Acts as if he contained within his proper measures all that his sign signifies
+		- Or his symbol seeks to shew forth
+- Description:
+	- Pale skinned, squinty eyes
+	- Chubby
+	- Mousey brown hair cut uniformly into medium length

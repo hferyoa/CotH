@@ -1,0 +1,6 @@
+- "Low magic"
+- Can be all elements
+- Often sacrificial
+- Often ritualistic
+- Written down and either buried (Earth), burned (Fire), drowned (Water), or torn and scattered (Wind)
+- In extremely rare cases, a priest will make a Theurgic prayer to destroy the paper, this will cause the spell to take on an Aethic element

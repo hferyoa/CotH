@@ -1,0 +1,19 @@
+- Tarot of the Star
+	- Loss
+	- Theft
+	- Privation
+	- Abandonment
+	- Another reading says:
+		- Hope
+		- Bright prospects
+	- Reversed:
+		- Arrogance
+		- Haughtiness
+		- Impotence
+	- That which the figure communicates to the living scene is the substance of the heavens and the elements
+	- It has been said truly that the mottoes of this card are:
+		- "Waters of Life freely"
+		- "Gifts of the Spirit"
+	- The summary of several tawdry explanations says that it is a card of hope
+	- On other planes it has been certified as immortality and interior light
+	- She is in reality the Great Mother, which is supernatural Understanding

@@ -1,0 +1,7 @@
+- Derives from the PIE root of Cult
+	- "PIE \*kw- becomes Greek p- before some vowels" such as -o (as in Pole \[axis\])
+- These people are Abokoves who have been captured and are set to work as slaves, often on a farm or in a mine
+- Due to the nature of them being Abokoves, this slavery is under threat of death
+- They are often chained to straight poles called "Tenos" (_sinew_) to prevent their escape, and those caught trying would inevitably be killed
+	- Not only were their feet chained to the Tenos, but in some cases - specifically in certain mines - there was a second, smaller Tenos along the ceiling, to which the Polt's left ear is sown using a special wire that will cut through the ear if pulled too hard. This ensures that the Polt's Master (Kyrios) will at least receive the bounty for any Polt who does attempt or manage to escape
+		- This does not formally preclude the Kyrios from being made an Abokove if they hand in the ear of a living Abokove - though considering they are frequently men of some net worth, this would be unlikely to actually happen

@@ -1,0 +1,4 @@
+- Based on the Greek mythological "Miasma"
+- "a contagious power ... that has an independent life of its own. Until purged by the sacrificial death of the wrongdoer, society would be chronically infected by catastrophe"
+- Can occur when anyone breaks an oath, sacrifices an innocent (or an Yvðai), angers a particularly vengeful magus or daemon, etc.
+	- Won't always happen but it's a possibility, so sacrificing Yvða is something most people will not do under normal circumstances

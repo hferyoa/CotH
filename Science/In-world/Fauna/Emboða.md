@@ -1,0 +1,5 @@
+- Named after the ancient Greek "Empousa" (_one footed_)
+- Copper leg is the only part of her that can interact with the physical world - makes a "chink" noise when she walks despite appearing to be an ordinary leg
+- Need to follow men back to their homes, be invited in and kill them as they orgasm or sleep
+	- Similar tactics to a succubus
+- Physical appearance shapeshifts

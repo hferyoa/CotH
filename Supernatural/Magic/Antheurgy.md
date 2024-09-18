@@ -1,0 +1,6 @@
+- "Anti Theurgy"
+- Sacriligeous
+- Certain God(s) have certain animals that they favour
+	- If you _really_ want a favour from a God and don't care about the consequences
+	- Capture one of that God's favoured animal, and torture it until its cries attract the God
+		- Who would - in theory! - grant you any wish so long as you would stop torturing His/Her beloved beast

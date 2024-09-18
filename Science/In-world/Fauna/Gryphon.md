@@ -1,0 +1,1 @@
+- Name comes from the Greek "gryphon" (_curved/hooked_) - duh

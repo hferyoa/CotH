@@ -1,0 +1,40 @@
+- Arctos meaning "Bear"
+- Thalides meaning "Son of [Thales](https://en.wikipedia.org/wiki/Thales)"
+	- The first Sage (sort of)
+- Predicted a solar eclipse
+- Has the primordial elements at his disposal
+- Forged an alliance with the cardinal compass points
+	- Allows his bloodline (via their Aymar(?) Ring or blood ring) to venture out past Fidifálena thanks to this alliance
+	- Has united many of the countries in all directions under his rule, and so has bolstered his country with the best of the best; warriors from the north, diplomats from the east, and merchants and their goods from the south
+- Tarot of the Emperor
+	- Stability
+	- Power
+	- Protection
+	- Realisation
+	- A great person
+	- Aid
+	- Reason
+	- Conviction
+	- Authority and will
+	- Reversed:
+		- Benevolence
+		- Compassion
+		- Credit
+		- Confusion to enemies
+		- Obstruction
+		- Immaturity
+	- He is executive and realisation
+	- The power of this world
+	- Clothed with the highest of its natural attributes
+	- He is the virile power to which the [[The Empress, Reia Arctou|Empress]] responds
+	- Should be understood that this card and that of the Empress do not precisely represent the condition of married life, though this state is implied
+		- On the surface, they stand for mundane royalty, uplifted on the seats of the mighty
+		- There is the suggestion of another prescence
+		- They signify also (the male figure especially) the higher kingship, occupying the intellectual throne
+	- Hereof is the lordship of thought rather than that of the animal world
+	- Both personalities are "full of strange experience", but theirs is not consciously the wisdom which draws from a higher world
+	- Will in its embodied form, but this is only one of its applications
+- Description:
+	- Wild medium length black hair, tied up and back in a shape emulating a flame
+	- Inch long beard hair
+	- Deep red eyes

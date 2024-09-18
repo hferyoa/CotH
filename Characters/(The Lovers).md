@@ -1,0 +1,19 @@
+- Tarot of The Lovers
+	- Attraction
+	- Love
+	- Beauty
+	- Trials overcome
+	- Reversed:
+		- Failure
+		- Foolish designs
+		- Another account speaks of marriage frustrated
+			- Contraries of all kinds
+	- The figures suggest youth
+	- Virginity
+	- Innocence
+	- Love before it is contaminated by gross material desire
+	- (The card of) human love
+	- The truth and the life
+	- The suggestion with respect to the woman signifies that attraction towards the sensitive life which carries within it the idea of the Fall of Man
+	- Rather, she is the working of a Secret Law of Providence than a willing and conscious temptress
+	- It is through her imputed lapse that man shall arise ultimately, and only by her can he complete himself

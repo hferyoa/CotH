@@ -1,0 +1,22 @@
+- Named after "[Triboulet](https://en.wikipedia.org/wiki/Triboulet)"
+- Also knows as "Three Dicks", since "Tri Boule" roughly translates to three birds/three dicks in Greek
+- French Jester
+- Tarot of the Hermit
+	- Prudence
+	- Circumspection
+	- Also, and especially Treason
+		- Dissimulation
+		- Roguery
+		- Corruption
+	- Reversed:
+		- Concealment
+		- Disguise
+		- Policy fear
+		- Unreasoned caution
+	- The Hermit is not a wise man in search of truth and justice
+	- Nor is he an especial example of experience
+	- His beacon imitates that "where I am, you also may be"
+	- The truth is that the Divine Mysteries secure their own protection from those who are unprepared
+- Description:
+	- Will be a short, tubby, balding man
+	- Kind eyes and a large nose take up a majority of his face

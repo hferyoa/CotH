@@ -1,0 +1,2 @@
+- Named after [Greek fire](https://en.wikipedia.org/wiki/Greek_fire)
+- Grenades filled with some Naphtha, resin, and Kalypthan are thrown at enemies, and ignite upon contact

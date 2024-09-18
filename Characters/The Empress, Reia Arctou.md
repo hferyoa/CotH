@@ -1,0 +1,29 @@
+- Mother of [[The High Priestess, Girl]], husband to [[The Emperor, Arctos Thalides|Arctos]]
+- Named after [Rhea](https://en.wikipedia.org/wiki/Rhea_(mythology)), the Greek "Mother of the Gods"
+- Tarot of The Empress
+	- Fruitfulness
+	- Action
+	- Initiative
+	- Length of days
+	- The unknown
+	- Clandestine
+	- Difficulty
+	- Doubt
+	- Ignorance
+	- Reversed:
+		- Light
+		- Truth
+		- The unravelling of involved matters
+		- Public rejoicings
+		- Vacillation (according to another reading)
+	- The fruitful mother of thousands
+	- The wings of desire, but not the soul that has attained wings
+	- The woman clothed with the Sun
+	- Above all things universal fecundity and the outer sense of the Word
+		- No direct message which has been given to man like that which is borne by woman
+		- But she does not herself carry its interpretation
+	- Signifies the foor or gate by which an entrance is obtained into this life, as into the Garden of Venus
+- Description:
+	- Long, well groomed black hair
+	- Green eyes
+	- Wearing a white and purple toga

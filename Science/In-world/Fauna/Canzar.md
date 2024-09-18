@@ -1,0 +1,6 @@
+- Named after "Kalikantzaros"
+	- Either from the Greek "Kalos-Kentauros" (_beautiful centaur_)
+	- Or from the Turkish "Kara-Kondjolos" (_black bloodsucker/werewolf_)
+- Solstice imps
+- Not considered purely malevolent creatures but rather impish and stupid
+- Can only come out on "unbaptised days" in folklore, baptism/bathing ritual kills them?

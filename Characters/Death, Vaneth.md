@@ -1,0 +1,26 @@
+- Named for the Etruscan Chthonic deity [Vanth](https://en.wikipedia.org/wiki/Vanth)
+- Associated with death and the journey of the deceased to the Underworld
+- Has been interpreted as a Goddess of fate
+	- The scroll she carries may contain the destiny of the deceased
+- Tarot of Death
+	- End
+	- Mortality
+	- Destruction
+	- Corruption
+	- For a man, the loss of a benefactor
+	- For a woman, many contrarieties
+	- For a maid, failure of marriage prospects
+	- Reversed:
+		- Inertia
+		- Sleep
+		- Lethargy
+		- Petrification
+		- Somnambulism
+		- Hope destroyed
+	- The veil or mask of life is perpetuated in change, transformation, and passage from lower to higher
+	- Death is not to be understood mystically
+	- The natural transit of man to the next stage of his being either is or may be one form of his progress
+	- The exotic and almost unknown entrance, while still in this life, into the state of mystical death, is a change in the form of consciousness
+	- The passage into a state to which ordinary death is neither the path nor gate
+- Description:
+	- -missing-

@@ -1,0 +1,8 @@
+- A Soma may not profit from bringing an Abokove's ear in to an ==Opys (name subject to change)==
+- Citizens will not be punished for killing a Soma
+- Soma are often denied access to the God(s), most commonly by priests who refuse Somas' access to their temples
+- Soma are allowed to own land
+- Soma are allowed to own slaves
+- There is only one commonly known case of a Soma becoming a King - though this was through conquering the land
+	- The second case of a Soma becoming a King will be Chros (though this will happen during the events of CotH)
+- Some are considered free men, and so cannot be enslaved except within war

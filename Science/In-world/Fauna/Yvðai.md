@@ -1,0 +1,3 @@
+- Named after the Greek word "Eudaimon", meaning "Good demon"
+- Will be protector spirits
+	- Can sacrifice one to make a protection amulet

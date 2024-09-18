@@ -1,0 +1,8 @@
+- Based on the "Vrykólakas" from Greek folklore
+- Vampire but eats livers instead of sucking blood
+- Also related to the South Slavic word for Werewolf
+- The creature is believed to knock on the doors of houses and call out the name of the residents.
+	- If it gets no reply the first time, it will pass without causing any harm
+	- If someone does answer the door, they will die a few days later and become another "Vrykólakas"
+- Other methods to hinder vampires included severing the tendons at the knees or placing poppy seeds on the ground at the grave site
+	- Normally the poppy seeds would be to cause the Vrykólakas to count them at a rate of one per year, this will be for a different - less silly - reason

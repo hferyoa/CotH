@@ -1,0 +1,14 @@
+- Named after [Al Ana](https://en.wikipedia.org/wiki/Al_Ana)
+	- A female demon in Turkic folklore
+- Said to live in thickets near rivers, streams, and lakes
+- Kidnaps human babies just after they're born and replaces them with her own children, known as [[Eidolon|Eidola]]
+- (In folklore) people most at risk of becoming an Al Ana after death were thought to be midwives, old maids, unmarried mothers, pregnant women who die before childbirth, as well as abandoned children born out of wedlock
+	- Alana will be one of those
+	- There will be other [[Red Mother|Red Mothers]], but Alana will be named
+
+- Description:
+	- Wears a large red hat with a fern twig attached to it
+	- No discernible iris or pupil to her eyes, just a bloodshot void
+	- Matted mossy-brown hair
+	- Some noticeable hair on her upper lip
+	- Inhuman, sharpened teeth

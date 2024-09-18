@@ -1,0 +1,3 @@
+- "Little Hernas"
+- The island Atychus grew up on in the monastery
+- Small island, ~272sqmi

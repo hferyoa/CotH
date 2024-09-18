@@ -1,0 +1,4 @@
+- From the Greek "ichor" (_ethereal blood of the gods and/or immortals_)
+- A golden, explosive liquid (Caesium) found in abundance on Althoa
+- Believed to be the blood of a wounded God
+- Carried within the organs of a sacrificed animal filled with [[Crós]] to prevent it combusting in the air

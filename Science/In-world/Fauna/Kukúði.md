@@ -1,0 +1,5 @@
+- A Kukudh is an undead creature from Albanian mythology
+- Related to Greek word "Koukoúdi" (_plague_)
+- Kukudh are associated with nightmares and death, connecting it to the nocturnal bird, the owl, and the cuckoo
+- Kukudh is also a blind female demon of sickness
+- In ==Tomorr== (Greek: ==Amyron==, where the ==Dexari== came from), there is a legend that a [[Lugat]] who is not burned will in time become a Kukudh

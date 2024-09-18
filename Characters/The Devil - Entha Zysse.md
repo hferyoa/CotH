@@ -1,0 +1,18 @@
+- Name means _He will not live_
+- Tarot of the Devil
+	- Ravage
+	- Violence
+	- Vehemence
+	- Extraordinary efforts
+	- Force
+	- Fatality
+	- That which is predestined but is not for this reason evil
+	- Reversed:
+		- Evil fatality
+		- Weakness
+		- Pettiness
+		- Blindness
+	- He who is exalted above them is not to be their master for ever
+	- Even now, he is also a bondsman, sustained by the evil that is in him and blind to the liberty of service
+	- With more than his usual derision for the arts which he pretended to respect and interpret as a master therein, the Baphometic figure is occult science and magic
+	- In the Divine world it signifies predestination, but there is no correspondence in that world with the things which below are of the brute

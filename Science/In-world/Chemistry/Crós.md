@@ -1,0 +1,2 @@
+- Name comes from the Greek "Kyrós" (_wax_)
+- Will be crude oil, which, when found underground in the low temperatures, tends to appear as a waxy substance

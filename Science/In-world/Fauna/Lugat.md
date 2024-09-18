@@ -1,0 +1,9 @@
+- A vampire-like being in Albanian mythology
+- Abide in shadows and darkness, especially places that never see sunlight
+	- Such as inside water wells, old ruins, and caves
+- They have a frightening visage and are extremely violent
+- They can fly and ride winds, and attack victims in their sleep
+	- However, they can also lure people, especially children, to themselves while they are concealed in darkness
+		- Maybe for only more powerful Lugats?
+- They can't be killed during the night, but if they are caught in their graves, they can be burnt to death
+- Often believed to wear the skin of a dead person and have long fingernails
