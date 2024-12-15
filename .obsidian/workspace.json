@@ -16,7 +16,9 @@
                 "file": "Science/In-world/Flora/Myekon.md",
                 "mode": "source",
                 "source": false
-              }
+              },
+              "icon": "lucide-file",
+              "title": "Myekon"
             }
           },
           {
@@ -25,10 +27,12 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "Shoutouts.md",
+                "file": "Book/Chapters/1 - Hernasaki.md",
                 "mode": "source",
                 "source": false
-              }
+              },
+              "icon": "lucide-file",
+              "title": "1 - Hernasaki"
             }
           }
         ],
@@ -52,7 +56,9 @@
               "type": "file-explorer",
               "state": {
                 "sortOrder": "alphabetical"
-              }
+              },
+              "icon": "lucide-folder-closed",
+              "title": "Files"
             }
           },
           {
@@ -67,7 +73,9 @@
                 "collapseAll": false,
                 "extraContext": false,
                 "sortOrder": "alphabetical"
-              }
+              },
+              "icon": "lucide-search",
+              "title": "Search"
             }
           },
           {
@@ -75,7 +83,9 @@
             "type": "leaf",
             "state": {
               "type": "starred",
-              "state": {}
+              "state": {},
+              "icon": "lucide-file",
+              "title": "Plugin no longer active"
             }
           },
           {
@@ -83,7 +93,9 @@
             "type": "leaf",
             "state": {
               "type": "bookmarks",
-              "state": {}
+              "state": {},
+              "icon": "lucide-bookmark",
+              "title": "Bookmarks"
             }
           }
         ]
@@ -106,7 +118,7 @@
             "state": {
               "type": "backlink",
               "state": {
-                "file": "Shoutouts.md",
+                "file": "Book/Chapters/1 - Hernasaki.md",
                 "collapseAll": false,
                 "extraContext": false,
                 "sortOrder": "alphabetical",
@@ -114,7 +126,9 @@
                 "searchQuery": "",
                 "backlinkCollapsed": false,
                 "unlinkedCollapsed": true
-              }
+              },
+              "icon": "links-coming-in",
+              "title": "Backlinks for 1 - Hernasaki"
             }
           },
           {
@@ -123,10 +137,12 @@
             "state": {
               "type": "outgoing-link",
               "state": {
-                "file": "Shoutouts.md",
+                "file": "Book/Chapters/1 - Hernasaki.md",
                 "linksCollapsed": false,
                 "unlinkedCollapsed": true
-              }
+              },
+              "icon": "links-going-out",
+              "title": "Outgoing links from 1 - Hernasaki"
             }
           },
           {
@@ -137,7 +153,9 @@
               "state": {
                 "sortOrder": "frequency",
                 "useHierarchy": true
-              }
+              },
+              "icon": "lucide-tags",
+              "title": "Tags"
             }
           },
           {
@@ -146,8 +164,10 @@
             "state": {
               "type": "outline",
               "state": {
-                "file": "Shoutouts.md"
-              }
+                "file": "Book/Chapters/1 - Hernasaki.md"
+              },
+              "icon": "lucide-list",
+              "title": "Outline of 1 - Hernasaki"
             }
           }
         ]
@@ -169,8 +189,17 @@
   },
   "active": "eebf70780a9b2645",
   "lastOpenFiles": [
-    "Science/In-world/Flora/Myekon.md",
+    "Supernatural/Magic/Goteia.md",
+    "Supernatural/Magic/Theurgy.md",
+    "Supernatural/Magic/Antheurgy.md",
+    "Book/Chapters/1 - Hernasaki.md",
+    "README.md",
+    "Book/Chapters",
+    "Links.md",
+    "Untitled",
+    "Book",
     "Shoutouts.md",
+    "Science/In-world/Flora/Myekon.md",
     "Shoutouts",
     "Science/In-world/Medicine/Flora/Chymec.md",
     "Science/In-world/Medicine/Flora/Lavðan.md",
@@ -189,21 +218,12 @@
     "Supernatural/Religion/Pantheon/Pagny.md",
     "Supernatural/Religion/En.md",
     "Supernatural/Religion/En",
-    "Supernatural/Religion/Pantheon",
-    "Supernatural/Religion",
-    "Supernatural",
     "OneNote Notes/Characters/Anankh.md",
     "OneNote Notes/Characters/Chyros.md",
     "OneNote Notes/Characters/Theothyma.md",
     "OneNote Notes/Characters/(The Devil).md",
     "OneNote Notes/Characters/Atychus.md",
     "OneNote Notes/Characters/Chymeia.md",
-    "Monsters/Red Mother.md",
-    "Monsters/Eidolon.md",
-    "OneNote Notes/Characters/Vaneth.md",
-    "OneNote Notes/Characters/Reia Arctou.md",
-    "OneNote Notes/Characters/Mytis.md",
-    "OneNote Notes/Characters/Empedocles.md",
-    "OneNote Notes/Characters/Arctos Thalides.md"
+    "Monsters/Red Mother.md"
   ]
 }
